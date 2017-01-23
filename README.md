@@ -101,3 +101,8 @@ Every post that is anti-trump will have trump defenders harrassing everyone who 
 This remains the top comment thread on a twitter post with 28000 likes even though the exchange is repulsive to read. There is no downvote functionality on twitter to make this go away, and so this uncivilized troll behavior is encouraged ad nauseum all over twitter
 
 https://twitter.com/JoannaSimkin/status/823189530597584897
+
+
+## Insane reddit trolls
+
+/r/The_Donald subreddit is completely obnoxious in it's behavior, using tons of "alt-right" in-group memes, and harrassing people with sexual innuendos like cuck/cuckold. That type of behavior is absolutely revolting, and reddit admins would rather shut their community down but they are also strongly in support of free speech so they allow it. Nevertheless, it is fully within their rights to shut it down.
