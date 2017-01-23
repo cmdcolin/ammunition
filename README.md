@@ -13,7 +13,7 @@ It was of course re-enabled by Trump on his first Monday in office: https://www.
 
 
 
-## Anti Vaccine
+## Anti-vaxx stance
 
 Nominating Robert Kennedy Jr. to made-up committee to investigate "vaccine safety and scientific integrety"
 https://theintercept.com/2017/01/10/trump-names-anti-vaccine-activist-robert-kennedy-jr-lead-panel-vaccine-safety/
@@ -26,12 +26,15 @@ Wakefield advocated chelating chemicals (chemicals which remove heavy metals fro
 
 Wakefield also advocated MMS (Miracle Mineral Supplement) which is effectively bleach, and parents used it on children http://www.forbes.com/sites/emilywillingham/2016/03/11/autism-parents-still-buying-into-bleach-cure-from-self-described-space-alien-god/#799a69f870de
 
-### Horrific quotes from parents administering MMS (Miracle Mineral Supplement)
+
+And this DIY administration of this Miracle Mineral Supplement is just abhorrent. Quotes from parents administering MMS (Miracle Mineral Supplement):
 
     "My daughter vomits every day now. We have been on cd [Kerri Rivera’s term for the bleach "treatment" of chlorine dioxide] for 2 months-and since 1 month she is vomiting, almost every day. Sometimes twice, today 3 times! Have any of you had this?"
 
     "...my son [redacted], 10 yrs old. Seems to want to vomit at the very end of each enema these days. Why is this? We put 10 ml of cd in his enema."
 
+
+Non-medical vaccination exemption approval has gone sharply upward with up to 30 percent Republicans approving of vaccine exemptions, and even 20% of democrats approving, which results in states with over 6% actually being unvaccinated http://www.motherjones.com/environment/2014/02/vaccine-exemptions-states-pertussis-map
 
 
 ## News organizations coverage of the elections was Trump biased
@@ -46,6 +49,8 @@ The media may have done this thinking that Trump would dig his own grave with hi
 ## Climate change
 
 Obviously technologically inclined, he deletes references to the climate change section of the whitehouse website http://www.newsweek.com/white-house-drops-climate-change-info-web-546010
+
+Scientists have, since the election, started backing up reems of climate science data in order to stave off dangerous policies that might delete them. https://www.washingtonpost.com/news/energy-environment/wp/2016/12/13/scientists-are-frantically-copying-u-s-climate-data-fearing-it-might-vanish-under-trump/?utm_term=.9bd244cdf19e
 
 
 ## Trade policy
