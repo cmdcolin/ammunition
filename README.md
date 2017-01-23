@@ -68,13 +68,9 @@ Trying to revive US Auto Industry http://www.usatoday.com/story/money/cars/2017/
 
 ## Insane twitter trolls
 
-### Calling for people to harrass public health figures https://twitter.com/Ellsworth_Lies
+Many posts on twitter, regardless of topic, will have Trump defenders harrassing everyone who replies to the post, and those Trump defenders posts will be highly ranked in the replies list
 
-All Autism & Vaccine Injured peeps, Please Tweet this "Expert" @PeterHotez that coincidentally works for Vaccine Manufacturers:
 
-Meanwhile Peter Hotez is actually a neglected tropical disease researcher who is not funded by "vaccine manufacturers"
-
-Every post that is anti-trump will have trump defenders harrassing everyone who replies to the post, and those trump defenders posts will be highly ranked in the replies list
 
 ### Mislabeled getty images rant
 
@@ -100,6 +96,12 @@ Every post that is anti-trump will have trump defenders harrassing everyone who 
 This remains the top comment thread on a twitter post with 28000 likes even though the exchange is repulsive to read. There is no downvote functionality on twitter to make this go away, and so this uncivilized troll behavior is encouraged ad nauseum all over twitter
 
 https://twitter.com/JoannaSimkin/status/823189530597584897
+
+### Anti-vaxx people harrassing public health figures https://twitter.com/Ellsworth_Lies
+
+Tweets saying such things as "All Autism & Vaccine Injured peeps, Please Tweet this "Expert" @PeterHotez that coincidentally works for Vaccine Manufacturers"
+
+
 
 
 ## Insane reddit trolls
