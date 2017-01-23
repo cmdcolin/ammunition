@@ -109,3 +109,20 @@ Tweets saying such things as "All Autism & Vaccine Injured peeps, Please Tweet t
 /r/The_Donald subreddit is completely obnoxious in it's behavior, using tons of "alt-right" in-group memes, and harrassing people with sexual innuendos like cuck/cuckold.
 
 Reddit admins have in the past had trouble with obnoxious communities on reddit, and oftentimes if an obnoxious community is shut down, other look-a-like subreddits popup and get to the front page using bots or vote manipulations causing havoc https://www.reddit.com/r/ListOfSubreddits/wiki/banned
+
+
+
+## "Muslim ban/database"
+
+The targetting of religion, which has no national or ethnic boundary, is just mindboggling, whether it is a database or a ban on immigration.
+
+It seems to me to be some sort of way to send a message to extreme Islamic groups like ISIS, but the reality of it is extremely Nazi-ish, name-and-shame-ish, and demoralizing.
+
+Think that this type of thing would not happen in reality? The TSA already, beginning with Obama administration, will ask for social media handles on your immigration forms.
+
+Crossing borders is becoming increasingly invasive of your personal privacy.
+
+
+
+
+http://www.politico.com/story/2016/12/foreign-travelers-social-media-232930
