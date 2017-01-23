@@ -37,7 +37,7 @@ Quotes about MMS
 
 ## News organizations
 
-Coverage by news organizations was heavily disproportionately Trump, giving him 1.4 million references to 600 thousand Clinton references
+Coverage by news organizations of the electron was heavily disproportionately Trump, giving him 1.4 million references to 0.6 million Clinton references http://television.gdeltproject.org/cgi-bin/iatv_campaign2016/iatv_campaign2016
 
 They even often let him speak on air much more than Hillary
 
