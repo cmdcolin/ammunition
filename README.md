@@ -67,3 +67,12 @@ Trying to revive US Auto Industry http://www.usatoday.com/story/money/cars/2017/
 
 
 
+## Insane twitter trolls
+
+Calling for people to harrass public health figures https://twitter.com/Ellsworth_Lies
+
+All Autism & Vaccine Injured peeps, Please Tweet this "Expert" @PeterHotez that coincidentally works for Vaccine Manufacturers:
+
+Meanwhile Peter Hotez is actually a neglected tropical disease chair who is not funded by Vaccine Manufacturers
+
+Every post that is anti-trump will have trump defenders harrassing everyone who replies to the post, and those trump defenders posts will be highly ranked in the replies list
