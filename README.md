@@ -18,24 +18,11 @@ It was of course re-enabled by Trump on his first Monday in office: https://www.
 Nominating Robert Kennedy Jr. to made-up committee to investigate "vaccine safety and scientific integrety"
 https://theintercept.com/2017/01/10/trump-names-anti-vaccine-activist-robert-kennedy-jr-lead-panel-vaccine-safety/
 
-Trump meets with Andrew Wakefield, vaccine opponent
-http://www.sciencemag.org/news/2016/11/trump-met-prominent-anti-vaccine-activists-during-campaign
+Trump meets with Andrew Wakefield, a now infamous figure in anti-vaxx movement
+http://www.sciencemag.org/news/2016/11/trump-met-prominent-anti-vaccine-activists-during-campaign https://en.wikipedia.org/wiki/Andrew_Wakefield
+ 
 
-
-Wakefield advocated chelating chemicals (chemicals which remove heavy metals from body) to cure children of autism, but those chemicals themselves are much less studied and likely more harmful on children
-
-Wakefield also advocated MMS (Miracle Mineral Supplement) which is effectively bleach, and parents used it on children http://www.forbes.com/sites/emilywillingham/2016/03/11/autism-parents-still-buying-into-bleach-cure-from-self-described-space-alien-god/#799a69f870de
-
-
-And this DIY administration of this Miracle Mineral Supplement is just abhorrent. Quotes from parents administering MMS (Miracle Mineral Supplement):
-
-    "My daughter vomits every day now. We have been on cd [Kerri Rivera’s term for the bleach "treatment" of chlorine dioxide] for 2 months-and since 1 month she is vomiting, almost every day. Sometimes twice, today 3 times! Have any of you had this?"
-
-    "...my son [redacted], 10 yrs old. Seems to want to vomit at the very end of each enema these days. Why is this? We put 10 ml of cd in his enema."
-
-
-Non-medical vaccination exemption approval has gone sharply upward with up to 30 percent Republicans approving of vaccine exemptions, and even 20% of democrats approving, which results in states with over 6% actually being unvaccinated http://www.motherjones.com/environment/2014/02/vaccine-exemptions-states-pertussis-map
-
+The anti-vaxx stance is very harmful for public health and safety, with a large increase in people believing in non-medical and personal-belief exemptions to vaccines http://www.motherjones.com/environment/2014/02/vaccine-exemptions-states-pertussis-map and giving their kids DIY medical treatments like MMS ("Miracle Mineral Supplement") or heavy-metal chelation therapy.
 
 ## News organizations coverage of the elections was Trump biased
 
