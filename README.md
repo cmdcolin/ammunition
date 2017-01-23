@@ -114,6 +114,8 @@ Reddit admins have in the past had trouble with obnoxious communities on reddit,
 
 ## "Muslim ban/database"
 
+Trump has repeatedly brought up the idea of a ban on Muslim immigration or a database of Muslim immigrants. Or, maybe as this article suggests, the press is putting words in his mouth, but he certainly doesn't protest or clarify https://www.washingtonpost.com/news/the-fix/wp/2016/11/17/the-evolution-of-donald-trump-and-the-muslim-database/?utm_term=.8d339dce2029
+
 The targetting of religion, which has no national or ethnic boundary, is just mindboggling, whether it is a database or a ban on immigration.
 
 It seems to me to be some sort of way to send a message to extreme Islamic groups like ISIS, but the reality of it is extremely Nazi-ish, name-and-shame-ish, and demoralizing.
