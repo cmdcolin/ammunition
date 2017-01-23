@@ -106,4 +106,6 @@ Tweets saying such things as "All Autism & Vaccine Injured peeps, Please Tweet t
 
 ## Insane reddit trolls
 
-/r/The_Donald subreddit is completely obnoxious in it's behavior, using tons of "alt-right" in-group memes, and harrassing people with sexual innuendos like cuck/cuckold. That type of behavior is absolutely revolting, and reddit admins would rather shut their community down but they are also strongly in support of free speech so they allow it. Nevertheless, it is fully within their rights to shut it down.
+/r/The_Donald subreddit is completely obnoxious in it's behavior, using tons of "alt-right" in-group memes, and harrassing people with sexual innuendos like cuck/cuckold.
+
+Reddit admins have in the past had trouble with obnoxious communities on reddit, and oftentimes if an obnoxious community is shut down, other look-a-like subreddits popup and get to the front page using bots or vote manipulations causing havoc https://www.reddit.com/r/ListOfSubreddits/wiki/banned
