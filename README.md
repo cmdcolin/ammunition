@@ -26,9 +26,9 @@ The anti-vaxx stance is very harmful for public health and safety, with a large 
 
 ## News organizations coverage of the elections was Trump biased
 
-Coverage by news organizations of the electron was heavily disproportionately Trump, giving him 1.4 million references to 0.6 million Clinton references http://television.gdeltproject.org/cgi-bin/iatv_campaign2016/iatv_campaign2016
+Coverage by news organizations of the 2016 election was heavily biased towards talking about Trump, giving him 1.4 million references to 0.6 million Clinton references http://television.gdeltproject.org/cgi-bin/iatv_campaign2016/iatv_campaign2016
 
-They even often let him speak on air much more than Hillary
+They also used audio clips or video clips of Trump talking much more often than Hillary
 
 The media may have done this thinking that Trump would dig his own grave with his rants, but that is absolutely deplorable of media organizations to think this, and in fact, it of course backfired and gave Trump the nomination and the presidency
 
