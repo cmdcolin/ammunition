@@ -3,15 +3,14 @@
 A short database of deplorable things that Trump and his cronies do
 
 
-## The Mexico City policy
+## Enabling "The Mexico City policy"
 
 Non-governmental aid organizations that receive funds for family planning cannot discuss abortion in ruling
 
 https://en.wikipedia.org/wiki/Mexico_City_Policy
-https://www.buzzfeed.com/jinamoore/trump-just-slapped-an-anti-abortion-rule-on-foreign-aid?bftwnews&utm_term=.sl53GprkX#.rd3PEMbjr
 
+It was of course re-enabled by Trump on his first Monday in office: https://www.buzzfeed.com/jinamoore/trump-just-slapped-an-anti-abortion-rule-on-foreign-aid?bftwnews&utm_term=.sl53GprkX#.rd3PEMbjr
 
-posted on Jan. 23, 2017, at 11:56 a.m.
 
 
 ## Anti Vaccine
@@ -27,7 +26,7 @@ Wakefield advocated chelating chemicals (chemicals which remove heavy metals fro
 
 Wakefield also advocated MMS (Miracle Mineral Supplement) which is effectively bleach, and parents used it on children http://www.forbes.com/sites/emilywillingham/2016/03/11/autism-parents-still-buying-into-bleach-cure-from-self-described-space-alien-god/#799a69f870de
 
-Quotes about MMS
+### Horrific quotes from parents administering MMS (Miracle Mineral Supplement)
 
     "My daughter vomits every day now. We have been on cd [Kerri Rivera’s term for the bleach "treatment" of chlorine dioxide] for 2 months-and since 1 month she is vomiting, almost every day. Sometimes twice, today 3 times! Have any of you had this?"
 
@@ -35,7 +34,7 @@ Quotes about MMS
 
 
 
-## News organizations
+## News organizations coverage of the elections was Trump biased
 
 Coverage by news organizations of the electron was heavily disproportionately Trump, giving him 1.4 million references to 0.6 million Clinton references http://television.gdeltproject.org/cgi-bin/iatv_campaign2016/iatv_campaign2016
 
