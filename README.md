@@ -120,3 +120,8 @@ Crossing borders is becoming increasingly invasive of your personal privacy.
 
 
 http://www.politico.com/story/2016/12/foreign-travelers-social-media-232930
+
+
+## Russian connection
+
+I believe Trump's Putin/Russian connection is a manufactured news item which is largely irrelevant, and it seems to actually normalize positive USA-Russian relations and normalizes widespread hacking that have become increasingly large (with 2016 seeing a 1 billion item password dump from Yahoo!)
