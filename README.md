@@ -44,4 +44,26 @@ They even often let him speak on air much more than Hillary
 The media may have done this thinking that Trump would dig his own grave with his rants, but that is absolutely deplorable of media organizations to think this, and in fact, it of course backfired and gave Trump the nomination and the presidency
 
 
+## Climate change
+
+Obviously technologically inclined, he deletes references to the climate change section of the whitehouse website http://www.newsweek.com/white-house-drops-climate-change-info-web-546010
+
+
+## Trade policy
+
+Trump's perspective on trade policy is extremely insular and lends itself to cronyism
+
+L.L. Bean http://www.newyorker.com/news/news-desk/trump-l-l-bean-and-the-peculiar-politics-of-maine
+
+Bullying union representatives on twitter https://www.washingtonpost.com/news/wonk/wp/2016/12/07/donald-trump-retaliated-against-a-union-leader-on-twitter-then-his-phone-started-to-ring/?utm_term=.10029e6e827a and the related Carrier deal https://fivethirtyeight.com/features/why-trumps-carrier-deal-isnt-the-way-to-save-u-s-jobs/
+
+Banning Trans-Pacific Partnership and working against Mexico trade with North American Free Trade Agreement https://www.nytimes.com/2017/01/23/us/politics/tpp-trump-trade-nafta.html
+
+Trying to revive US Auto Industry http://www.usatoday.com/story/money/cars/2017/01/23/truth-behind-trump-auto-industry-and-mexico/96938592/
+
+
+
+
+
+
 
