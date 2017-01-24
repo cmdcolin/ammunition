@@ -9,19 +9,16 @@ But can we try to understand issues? In particular, I would like to highlight wh
 ## Thomas Sowell columns
 
 
-Thomas Sowell is conservative thought columnist. His book "Basic Economics: A Common Sense Guide to the Economy" is a good book with extremely simple that hammer home libertarian type ideas.
+Thomas Sowell is a conservative thought columnist. His book "Basic Economics: A Common Sense Guide to the Economy" is a good book with extremely simple that hammer home libertarian type ideas.
 
-After Trump was elected, Sowell retired from his columnist post https://www.creators.com/read/thomas-sowell/12/16/farewell
-
+Since Trump was elected, he has retired from his columnist post https://www.creators.com/read/thomas-sowell/12/16/farewell
 
 Nevertheless, he had some good coverage of the election:
 
 
-Video about housing, obamacare, military https://www.bloomberg.com/politics/videos/2016-12-15/hoover-institution-s-sowell-on-trump-obamacare-military
-
-Article saying that "Impeaching trump would be easier than Hillary", sort of a jab http://www.eastbaytimes.com/2016/10/28/sowell-choose-trump-hes-much-easier-to-impeach/
-
-Addressing tough topics about ISIS proliferation http://www.nationalreview.com/article/440928/donald-trump-tape-indefensible-hillary-clinton-actions-matter-most
+* Video about housing, obamacare, military https://www.bloomberg.com/politics/videos/2016-12-15/hoover-institution-s-sowell-on-trump-obamacare-military
+* Article saying that "Impeaching trump would be easier than Hillary", sort of a jab http://www.eastbaytimes.com/2016/10/28/sowell-choose-trump-hes-much-easier-to-impeach/
+* Addressing tough topics about ISIS proliferation http://www.nationalreview.com/article/440928/donald-trump-tape-indefensible-hillary-clinton-actions-matter-most
 
 
 
