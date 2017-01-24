@@ -146,3 +146,9 @@ Trump does not shy away from saying crude and sexist things. I would advise not 
 This NYT article discusses what this type of thing means https://www.nytimes.com/2016/10/09/us/politics/men-say-trumps-remarks-on-sex-and-women-are-beyond-the-pale.html
 
 The NYT article concludes that this is not normal "locker room banter". It's just deplorable and sexist. This should be obvious, but since Trump normalizes hateful and bigotted thinking, you should be reminded of it.
+
+## Plan to eliminate arts and humanities funding
+
+A bill sponsored by the Heartland Foundation, notorious conserative thinktank, produced these ideas to defund arts and humanities and privatize the corporation of public broadcasting (PBS, NPR, etc)
+
+http://hyperallergic.com/352879/trump-team-plans-to-eliminate-national-endowments-for-the-arts-and-humanities/
