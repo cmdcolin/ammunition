@@ -11,7 +11,9 @@ https://en.wikipedia.org/wiki/Mexico_City_Policy
 
 It was of course re-enabled by Trump on his first Monday in office: https://www.buzzfeed.com/jinamoore/trump-just-slapped-an-anti-abortion-rule-on-foreign-aid?bftwnews&utm_term=.sl53GprkX#.rd3PEMbjr
 
+## Executive order to defund planned parenthood
 
+What a nightmare http://www.lifenews.com/2017/01/23/president-donald-trump-signs-executive-order-to-defund-international-planned-parenthood/
 
 ## Anti-vaxx stance
 
