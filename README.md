@@ -24,13 +24,15 @@ http://www.sciencemag.org/news/2016/11/trump-met-prominent-anti-vaccine-activist
 
 The anti-vaxx stance is very harmful for public health and safety, with a large increase in people believing in non-medical and personal-belief exemptions to vaccines http://www.motherjones.com/environment/2014/02/vaccine-exemptions-states-pertussis-map and giving their kids DIY medical treatments like MMS ("Miracle Mineral Supplement") or heavy-metal chelation therapy.
 
-## News organizations coverage of the elections was Trump biased
+## Coverage of the elections was Trump biased
 
 Coverage by news organizations of the 2016 election was heavily biased towards talking about Trump, giving him 1.4 million references to 0.6 million Clinton references http://television.gdeltproject.org/cgi-bin/iatv_campaign2016/iatv_campaign2016
 
 They also used audio clips or video clips of Trump talking much more often than Hillary
 
-The media may have done this thinking that Trump would dig his own grave with his rants, but that is absolutely deplorable of media organizations to think this, and in fact, it of course backfired and gave Trump the nomination and the presidency
+My opinion is that this resulted in a "any publicity is good publicity effect", but there is likely more subtlety to it.
+
+Maybe the media thought that Trump's ridiculous claims and rants would dig his own grave, but it is very wrong to think this, and in fact, it of course backfired and gave Trump the nomination and the presidency
 
 
 ## Climate change
