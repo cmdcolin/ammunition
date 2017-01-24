@@ -140,9 +140,9 @@ From the desk of the current out-going USA Border chief, "it is not going to wor
 
 ## Crude and sexist commentary
 
-Trump does not shy away from saying disgusting things about women. I would advise not even clicking this link for your own sanity http://www.huffingtonpost.com/entry/16-real-things-trump-has-said-about-women-while-for-running-for-president_us_57e14a5ae4b04a1497b6a29c
+Trump does not shy away from saying crude and sexist things. I would advise not even clicking this link for your own sanity as it's toilet humor, but present it here http://www.huffingtonpost.com/entry/16-real-things-trump-has-said-about-women-while-for-running-for-president_us_57e14a5ae4b04a1497b6a29c
 
 
-This NYT article discusses what this type of thing means https://www.nytimes.com/2016/10/09/us/politics/men-say-trumps-remarks-on-sex-and-women-are-beyond-the-pale.html<Paste>
+This NYT article discusses what this type of thing means https://www.nytimes.com/2016/10/09/us/politics/men-say-trumps-remarks-on-sex-and-women-are-beyond-the-pale.html
 
-A reasonable conclusion this article makes is that this is not normal banter. It's really deplorable. Did we really need the NYT to tell us this though?
+The NYT article concludes that this is not normal "locker room banter". It's just deplorable and sexist. This should be obvious but in the way that Trump normalizes hateful and bigotted thinking you should be reminded of it.
