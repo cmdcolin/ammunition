@@ -127,11 +127,11 @@ http://www.politico.com/story/2016/12/foreign-travelers-social-media-232930
 I believe the story of Trump's Putin/Russian connection which has emerged since Trump was elected is dubious and perhaps a manufactured news item which is largely irrelevant. It would seem that the connection normalizes USA-Russian relations and also normalizes widespread hacking (which is troublesome as large scale computer hacking is affecting more and more people, e.g. the 1,000,000,000 account Yahoo! leak)
 
 
-## Build a wall
+## "Build the wall"
 
-The idea of building a wall could be said to be the bedrock of Trump's campaign. The wall is gets Trump supporters so excited that they chant about it, which is just cringeworthy.
+The idea of building a wall could be said to be the bedrock of Trump's campaign. "Build the wall" gets Trump supporters so excited that they chant about it, which is ultimately really cringeworthy.
 
-From the current border chief, "it is not going to work" either http://www.mediaite.com/online/outgoing-border-chief-trumps-wall-is-a-waste-of-resources-thats-not-going-to-work/
+From the desk of the current out-going USA Border chief, "it is not going to work" either http://www.mediaite.com/online/outgoing-border-chief-trumps-wall-is-a-waste-of-resources-thats-not-going-to-work/
 
 
 ## Crude and sexist commentary
