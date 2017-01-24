@@ -11,9 +11,9 @@ https://en.wikipedia.org/wiki/Mexico_City_Policy
 
 It was of course re-enabled by Trump on his first Monday in office: https://www.buzzfeed.com/jinamoore/trump-just-slapped-an-anti-abortion-rule-on-foreign-aid?bftwnews&utm_term=.sl53GprkX#.rd3PEMbjr
 
-## Threatening to defunding planned parenthood
+## Threatening to defund Planned Parenthood
 
-The republican congress has repeatedly threatened to defund planned parenthood for years now, and now they have a platform to do it on, along with the Affordable care act
+The republican congress has repeatedly threatened to defund planned parenthood for years now, and now they have a platform to do it on, by shoehorning it in to their destruction of the Affordable care act
 
 http://www.npr.org/sections/health-shots/2017/01/15/509662288/that-vow-to-defund-planned-parenthood-easy-to-say-hard-to-do
 
