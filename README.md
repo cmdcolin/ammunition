@@ -145,4 +145,4 @@ Trump does not shy away from saying crude and sexist things. I would advise not 
 
 This NYT article discusses what this type of thing means https://www.nytimes.com/2016/10/09/us/politics/men-say-trumps-remarks-on-sex-and-women-are-beyond-the-pale.html
 
-The NYT article concludes that this is not normal "locker room banter". It's just deplorable and sexist. This should be obvious but in the way that Trump normalizes hateful and bigotted thinking you should be reminded of it.
+The NYT article concludes that this is not normal "locker room banter". It's just deplorable and sexist. This should be obvious, but since Trump normalizes hateful and bigotted thinking, you should be reminded of it.
