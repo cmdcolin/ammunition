@@ -66,7 +66,7 @@ Many posts on twitter, regardless of topic, will have Trump defenders harrassing
 
 
 
-### Mislabeled getty images rant
+### Example: Mislabeled getty images rant
 
 
 ```
@@ -91,18 +91,20 @@ This remains the top comment thread on a twitter post with 28000 likes even thou
 
 https://twitter.com/JoannaSimkin/status/823189530597584897
 
-### Anti-vaxx people harrassing public health figures https://twitter.com/Ellsworth_Lies
+### Example: Anti-vaxx people harrassing public health figures
 
-Tweets saying such things as "All Autism & Vaccine Injured peeps, Please Tweet this "Expert" @PeterHotez that coincidentally works for Vaccine Manufacturers"
+Not strictly Trump related, but anti-vaxx twitter call to harrass public figures https://twitter.com/Ellsworth_Lies/status/823584488596836352
+
+    All Autism & Vaccine Injured peeps, Please Tweet this "Expert" @PeterHotez that coincidentally works for Vaccine Manufacturers
 
 
 
 
 ## Insane reddit trolls
 
-/r/The_Donald subreddit is completely obnoxious in it's behavior, using tons of "alt-right" in-group memes, and harrassing people with sexual innuendos like cuck/cuckold.
+/r/The_Donald has been a non-stop cringefest that manufactures tons of "alt-right" in-group memes, and harrasses people with sexual innuendos like cuck/cuckold.
 
-Reddit admins have in the past had trouble with obnoxious communities on reddit, and oftentimes if an obnoxious community is shut down, other look-a-like subreddits popup and get to the front page using bots or vote manipulations causing havoc https://www.reddit.com/r/ListOfSubreddits/wiki/banned
+Reddit admins have in the past had trouble with obnoxious communities on reddit, and oftentimes if an obnoxious community is shut down, other look-a-like subreddits popup and use vote manipulations causing havoc https://www.reddit.com/r/ListOfSubreddits/wiki/banned
 
 
 
