@@ -132,3 +132,13 @@ I believe the story of Trump's Putin/Russian connection which has emerged since 
 The idea of building a wall could be said to be the bedrock of Trump's campaign. The wall is gets Trump supporters so excited that they chant about it, which is just cringeworthy.
 
 From the current border chief, "it is not going to work" either http://www.mediaite.com/online/outgoing-border-chief-trumps-wall-is-a-waste-of-resources-thats-not-going-to-work/
+
+
+## Crude and sexist commentary
+
+Trump does not shy away from saying disgusting things about women. I would advise not even clicking this link for your own sanity http://www.huffingtonpost.com/entry/16-real-things-trump-has-said-about-women-while-for-running-for-president_us_57e14a5ae4b04a1497b6a29c
+
+
+This NYT article discusses what this type of thing means https://www.nytimes.com/2016/10/09/us/politics/men-say-trumps-remarks-on-sex-and-women-are-beyond-the-pale.html<Paste>
+
+A reasonable conclusion this article makes is that this is not normal banter. It's really deplorable. Did we really need the NYT to tell us this though?
