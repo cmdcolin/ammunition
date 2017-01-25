@@ -169,6 +169,6 @@ The Carrier deal, related to bullying people on twitter https://fivethirtyeight.
 
 ### Muzzling scientists and public figures
 
-EPA freeze and public policy change
-USDA-ARS public policy change
-Natl Parks public policy change
+- EPA freeze and public policy change
+- USDA-ARS public policy change
+- Natl Parks public policy change
