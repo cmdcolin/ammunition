@@ -172,3 +172,19 @@ The Carrier deal, related to bullying people on twitter https://fivethirtyeight.
 - EPA freeze and public policy change
 - USDA-ARS public policy change
 - Natl Parks public policy change
+
+
+## Visa bans
+
+
+
+"Ban for 30 days all “immigrant and nonimmigrant” entry of individuals from countries designated in Division O, Title II, Section 203 of the 2016 consolidated appropriations act: Iraq, Syria, Iran, Sudan, Libya, Somalia, and Yemen. These countries were targeted last year in restrictions on dual nationals’ and recent travelers’ participation in the visa waiver program." amongst other things
+
+
+
+## Declares building a wall
+
+Creating name and shame list for sanctuary cities http://www.washingtontimes.com/news/2017/jan/26/donald-trump-creates-name-and-shame-list-embarrass/
+
+Back and forth discussion about 20% import tax on Mexico
+
