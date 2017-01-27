@@ -20,8 +20,10 @@ Nevertheless, he had some good coverage of the election:
 * Article saying that "Impeaching trump would be easier than Hillary", sort of a jab http://www.eastbaytimes.com/2016/10/28/sowell-choose-trump-hes-much-easier-to-impeach/
 * Addressing tough topics about ISIS proliferation http://www.nationalreview.com/article/440928/donald-trump-tape-indefensible-hillary-clinton-actions-matter-most
 
+## Policies
 
-
+* Is globalism always a win-win? - or 
+Did China Eat America's Jobs? http://freakonomics.com/podcast/china-eat-americas-jobs/
 
 
 
