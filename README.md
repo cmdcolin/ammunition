@@ -63,6 +63,7 @@ Not strictly Trump related, but anti-vaxx twitter call to harrass public figures
 
 Reddit admins have in the past had trouble with obnoxious communities on reddit, and oftentimes if an obnoxious community is shut down, other look-a-like subreddits popup and use vote manipulations causing havoc https://www.reddit.com/r/ListOfSubreddits/wiki/banned
 
+Brigading youtube to take down climate science videos https://news.ycombinator.com
 
 ## On-going controversies
 
