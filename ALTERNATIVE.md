@@ -32,6 +32,6 @@ Betsy DeVos's nomination is controversial to many
 
 I did not know about her previously but have seen great outrage over the idea of school choice. Her being from Michigan, there is a long history of school choice causing sytematic societal problems. Many assert that forcing bussing children over school lines would have prevented white flight in Detroit, MI, the state where she is from. She advocates the charter school system within Detroit, MI, which is problematic because the public school system is in complete shambles, see Dan Rather's - A National Disgrace about this https://www.youtube.com/watch?v=4xypiZ-hqdY
 
-Is it OK to advocate for an alternative when the status-quo, especially in Detroit, is not working? Sure. However it is easy to see that there are still huge problems https://en.wikipedia.org/wiki/Betsy_DeVos#Detroit_charter_school_system
+Is it OK to advocate for an alternative when the status-quo, especially in Detroit, is not working? Sure. However it is easy to see that there are still huge problems https://en.wikipedia.org/wiki/Betsy_DeVos#Detroit_charter_school_system and https://makeloveland.com/reports/schools
 
 
