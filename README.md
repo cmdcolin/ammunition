@@ -160,18 +160,20 @@ It was of course re-enabled by Trump on his first Monday in office: https://www.
 
 Trump's perspective on trade policy is extremely insular and lends itself to cronyism
 
-L.L. Bean http://www.newyorker.com/news/news-desk/trump-l-l-bean-and-the-peculiar-politics-of-maine
+- L.L. Bean http://www.newyorker.com/news/news-desk/trump-l-l-bean-and-the-peculiar-politics-of-maine
 
-Banning Trans-Pacific Partnership and working against Mexico trade with North American Free Trade Agreement https://www.nytimes.com/2017/01/23/us/politics/tpp-trump-trade-nafta.html
+- Banning Trans-Pacific Partnership and working against Mexico trade with North American Free Trade Agreement https://www.nytimes.com/2017/01/23/us/politics/tpp-trump-trade-nafta.html
 
-Trying to revive US Auto Industry http://www.usatoday.com/story/money/cars/2017/01/23/truth-behind-trump-auto-industry-and-mexico/96938592/
+- Trying to revive US Auto Industry http://www.usatoday.com/story/money/cars/2017/01/23/truth-behind-trump-auto-industry-and-mexico/96938592/
 
-The Carrier deal, related to bullying people on twitter https://fivethirtyeight.com/features/why-trumps-carrier-deal-isnt-the-way-to-save-u-s-jobs/
+- The Carrier deal, related to bullying people on twitter https://fivethirtyeight.com/features/why-trumps-carrier-deal-isnt-the-way-to-save-u-s-jobs/
+
+- Nordstrom rack twitter rant
 
 ### Muzzling scientists and public figures
 
 - EPA freeze and public policy change
-- USDA-ARS public policy change
+- USDA-ARS public policy change (update: was dropped)
 - Natl Parks public policy change
 
 
@@ -189,3 +191,9 @@ Creating name and shame list for sanctuary cities http://www.washingtontimes.com
 
 Back and forth discussion about 20% import tax on Mexico
 
+
+## Intentionally confusing people about terror record
+
+Citing terror attacks that did not exist (Bowling Green, Atlanta)
+
+These misinformation completely overwhelm the media with total nonsense and it makes no sense why Trump administration is doing this. It is maybe a "headfake" to use the latest in the misinformation lingo
