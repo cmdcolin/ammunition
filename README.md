@@ -1,6 +1,6 @@
 # ammunition
 
-A short database of deplorable things that Trump and his cronies do
+A short database of deplorable things in the Trump era
 
 
 ## Electron coverage
