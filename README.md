@@ -69,11 +69,18 @@ Brigading youtube to take down climate science videos https://news.ycombinator.c
 
 ### Russian connection
 
-I believe the story of Trump's Putin/Russian connection which has emerged since Trump was elected is dubious and perhaps a manufactured news item which is largely irrelevant. It would seem that the connection normalizes USA-Russian relations and also normalizes widespread hacking (which is troublesome as large scale computer hacking is affecting more and more people, e.g. the 1,000,000,000 account Yahoo! leak)
+I believe the story of Trump's Putin/Russian connection which has emerged since Trump was elected is dubious 
 
-### Conflicts of interest
+It seems to be just a way for people to get angry about something
 
-N/A
+Russia has terrible US relations especially in wartorn places like syria and it seems like a no-diplomacy relation with Russia is a bad deal
+
+Nevertheless, every time news leaks that a council member has met with Russian authorities it causes uproar
+
+It is indeed problematic that they are doing this under purjury, Jeff Sessions for example lied on this
+
+
+It would seem that the connection normalizes USA-Russian relations and also normalizes widespread hacking
 
 ## Character
 
