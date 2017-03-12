@@ -220,3 +220,10 @@ Source https://www.genomeweb.com/policy-legislation/gina-supporters-concerned-ho
 
 
 Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-let-isps-sell-your-web-browsing-data/
+
+## War against journalism
+
+- Not meeting White House Correspondants http://www.cnn.com/2017/02/25/politics/trump-declines-to-attend-white-house-correspondents-dinner/
+- Banning BBC from White House http://www.bbc.com/news/world-us-canada-39088820
+
+
