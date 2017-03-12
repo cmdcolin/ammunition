@@ -227,3 +227,7 @@ Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-l
 - Banning BBC from White House http://www.bbc.com/news/world-us-canada-39088820
 
 
+## Anti climate change stance
+
+- Electing Scott Pruit to EPA https://twitter.com/colbertlateshow/status/840376747849785344?ref_src=twsrc%5Etfw
+- By the way, Blightbart news is now a #1 result on Google when searching for this. Awful
