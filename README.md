@@ -212,7 +212,11 @@ http://www.usatoday.com/story/news/nation/2017/02/16/president-trump-immigration
 
 
 
-## 
+## Removing GINA protections (Genetic Information Non-descrimination Act)
+
+Source https://www.genomeweb.com/policy-legislation/gina-supporters-concerned-house-bill-undermines-genetic-non-discrimination-law
+
+## Allowing ISP to sell your internet history
 
 
-
+Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-let-isps-sell-your-web-browsing-data/
