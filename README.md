@@ -181,19 +181,38 @@ Trump's perspective on trade policy is extremely insular and lends itself to cro
 
 
 
-"Ban for 30 days all “immigrant and nonimmigrant” entry of individuals from countries designated in Division O, Title II, Section 203 of the 2016 consolidated appropriations act: Iraq, Syria, Iran, Sudan, Libya, Somalia, and Yemen. These countries were targeted last year in restrictions on dual nationals’ and recent travelers’ participation in the visa waiver program." amongst other things
+- Iraq, Syria, Iran, Sudan, Libya, Somalia, and Yemen ban on people who even hold green cards
 
+- Sally Yates fired from Attourney General post for refusing to enforce ban
 
 
 ## Declares building a wall
 
-Creating name and shame list for sanctuary cities http://www.washingtontimes.com/news/2017/jan/26/donald-trump-creates-name-and-shame-list-embarrass/
+- Creating name-and-shame list for sanctuary cities [Source](http://www.washingtontimes.com/news/2017/jan/26/donald-trump-creates-name-and-shame-list-embarrass/)
 
-Back and forth discussion about 20% import tax on Mexico
+- Potential 20% import tax on Mexico [Source](http://www.cnn.com/2017/01/26/politics/donald-trump-mexico-import-tax-border-wall/)
+
+
 
 
 ## Intentionally confusing people about terror record
 
-Citing terror attacks that did not exist (Bowling Green, Atlanta)
+- People in interviews make remarks about terror attacks that did not exist (Bowling Green, Atlanta)
 
-These misinformation completely overwhelm the media with total nonsense and it makes no sense why Trump administration is doing this. It is maybe a "headfake" to use the latest in the misinformation lingo
+## Firing Bharara for investigating Trump finances
+
+- "By asking for the immediate resignations of the remaining US attorneys before their replacements have been confirmed, "the President is interrupting ongoing cases and investigations and hindering the administration of justice," Schumer said." [Source](http://www.cnn.com/2017/03/11/politics/bharara-not-resigning/)
+
+
+
+## ICE raids on non-criminals
+
+http://www.usatoday.com/story/news/nation/2017/02/16/president-trump-immigration-raids-target-fewer-criminals/97988770/
+
+
+
+
+## 
+
+
+
