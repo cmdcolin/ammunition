@@ -212,10 +212,14 @@ Trump's perspective on trade policy is extremely insular and lends itself to cro
 
 
 
-## ICE raids on non-criminals
+## ICE raids on non-criminal undocumented immigrants
 
 http://www.usatoday.com/story/news/nation/2017/02/16/president-trump-immigration-raids-target-fewer-criminals/97988770/
 
+
+### High-tech biotech industry opposes immigration reforms
+
+Hundreds of biotech executives sign letters against immigration measures http://blogs.nature.com/tradesecrets/2017/02/07/us-immigration-order-strikes-against-biotech yet 
 
 
 
@@ -232,7 +236,8 @@ Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-l
 
 - Not meeting White House Correspondants http://www.cnn.com/2017/02/25/politics/trump-declines-to-attend-white-house-correspondents-dinner/
 - Banning BBC from White House http://www.bbc.com/news/world-us-canada-39088820
-
+- Creating "fake news" hysteria
+- Linking awful news sites like Breitbart and InfoWars from official channels
 
 ## Anti climate change stance
 
@@ -240,7 +245,7 @@ Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-l
 - By the way, Blightbart news is now a #1 result on Google when searching for this. Awful
 
 
-## Starting long range missile strikes in Syria
+## Performing long range missile strikes in Syria
 
 Everyone seems to suspect some "ties to Russia" conspiracy, and label the attack as ineffective, but it's a serious provocation. Now people are already armchair warhawks trying to make sense of the whole situation and calling for blood.
 
@@ -249,7 +254,15 @@ Everyone seems to suspect some "ties to Russia" conspiracy, and label the attack
 ## Nomination of Gorsuch
 
 
-Very conservative Supreme Justice nominee was appointed after banning filibuster https://www.washingtonpost.com/news/monkey-cage/wp/2017/04/10/neil-gorsuchs-confirmation-shattered-political-conventions-here-is-why/
+Very conservative Supreme Justice nominee was appointed after banning filibuster, an unprecedented and unfair move https://www.washingtonpost.com/news/monkey-cage/wp/2017/04/10/neil-gorsuchs-confirmation-shattered-political-conventions-here-is-why/
 
 
+## Implementing extreme vetting of immigrants
+
+Do you delightfully give up your personal phone and your login credentials to border patrol and customs agents? Well now you do.
+
+Trump still pursues policy of extreme vetting https://www.nytimes.com/2017/04/10/opinion/the-extreme-foolishness-in-extreme-vetting-proposals.html?smid=tw-nytopinion&smtyp=cur
+
+
+Note that a lighter-weight version of this appeared in Aug 2016 but handing over "keys" to your account is much more extreme http://www.computerworld.com/article/3110789/security/groups-oppose-us-plan-to-collect-social-media-info-from-visitors.html
 
