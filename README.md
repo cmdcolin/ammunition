@@ -238,3 +238,18 @@ Source https://arstechnica.com/tech-policy/2017/03/gop-senators-new-bill-would-l
 
 - Electing Scott Pruit to EPA https://twitter.com/colbertlateshow/status/840376747849785344?ref_src=twsrc%5Etfw
 - By the way, Blightbart news is now a #1 result on Google when searching for this. Awful
+
+
+## Starting long range missile strikes in Syria
+
+Everyone seems to suspect some "ties to Russia" conspiracy, and label the attack as ineffective, but it's a serious provocation. Now people are already armchair warhawks trying to make sense of the whole situation and calling for blood.
+
+
+
+## Nomination of Gorsuch
+
+
+Very conservative Supreme Justice nominee was appointed after banning filibuster https://www.washingtonpost.com/news/monkey-cage/wp/2017/04/10/neil-gorsuchs-confirmation-shattered-political-conventions-here-is-why/
+
+
+
