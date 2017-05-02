@@ -266,3 +266,21 @@ Trump still pursues policy of extreme vetting https://www.nytimes.com/2017/04/10
 
 Note that a lighter-weight version of this appeared in Aug 2016 but handing over "keys" to your account is much more extreme http://www.computerworld.com/article/3110789/security/groups-oppose-us-plan-to-collect-social-media-info-from-visitors.html
 
+
+## Axing Let Girl's Learn
+
+Helping girls learn in developing countries
+http://www.cnn.com/2017/05/01/politics/trump-michelle-obama-girls-education/index.html
+
+Disclaimer: not verified
+
+## Continually commenting on dictators positively
+
+http://www.cnn.com/2017/05/01/politics/trump-willingness-to-meet-strongmen/
+
+Loves to just comment on these people admirably like a real pal. Am I opposed to even talking about these people? No, but Trump is basically just broing down with them all.
+
+## Syrian war
+
+No de-escalation of Syrian war in sight, even despite broing down with Putin
+
