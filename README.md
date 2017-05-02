@@ -278,9 +278,9 @@ Disclaimer: not verified
 
 http://www.cnn.com/2017/05/01/politics/trump-willingness-to-meet-strongmen/
 
-Loves to just comment on these people admirably like a real pal. Am I opposed to even talking about these people? No, but Trump is basically just broing down with them all.
+Loves to just comment on these people admirably like a real pal. Am I opposed to even talking about these people? No. But given his dual history of not visiting any foreign countries to date and making no other productive progress on the world front really sets the tone.
 
-## Syrian war
-
-No de-escalation of Syrian war in sight, even despite broing down with Putin
-
+Putin, there is a large public sphere debate involving this but nothing productive comes for de-escalating syrian war
+Duterte, leader of a drug crackdown in Phillipines
+Erdogan, crushes a rebellion violently and fires tens of thousands of government employees
+More.
