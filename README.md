@@ -284,3 +284,12 @@ Putin, there is a large public sphere debate involving this but nothing producti
 Duterte, leader of a drug crackdown in Phillipines
 Erdogan, crushes a rebellion violently and fires tens of thousands of government employees
 More.
+
+
+## Cabinet
+
+WWE magnate as Administrator for Small Business https://en.wikipedia.org/wiki/Linda_McMahon
+Carl's Juinor exec as Labor Secretary (withdrawn) https://www.usatoday.com/story/money/business/2017/03/21/carls-jrhardees-ceo-trumps-pick-labor-retires/99473786/
+FBI picks repeatedly withdrawn
+Army secretary repeatedly withdrawn http://thehill.com/policy/defense/332135-trump-army-secretary-nominee-withdraws
+
